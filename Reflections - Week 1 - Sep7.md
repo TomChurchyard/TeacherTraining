@@ -10,6 +10,7 @@ Friday 11th
 * I need to experiment with some screen capture softwares so that I can find what is best for my workflow and needs.
 * Prepare some questions for Giles for Friday 18th.
 
+
 ### Future Points
 * In the long term I need to gain more confidence with recording myself and having a virtual presence as I have little experience of communicating in this way.
 
