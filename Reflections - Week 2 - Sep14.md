@@ -41,4 +41,49 @@ Tuesday 15th
 
 Wednesday 16th
 ---
-### Reflections & Actions
+### Notes
+Safeguarding - Mindful Equity UK.
+* All staff to be aware of following:
+    * Child protextion policy.
+    * Behaviour and SEND policies.
+    * H&S including trips policy.
+    * Staff conduct.
+    * Attendance and absence reporting.
+    * Role of the safeguarding lead
+* Keeping children safe in education.
+    * Staff must sign to say they have understood it.
+    * DSL/DSO to keep record in addition to staff attendance to safeguarding training.
+* Safeguarding roles (safeguarding officers / leads).
+    * Should promote an "it could happen here" attitude.
+    * Works with:
+        * Local authority
+        * Local clinical commissioning group
+        * Police
+    * Makes assessments to services such as Early Help, Mash.
+    * Whistleblowing policy including external avenues.
+* Staff expected to: 
+    * Engage in all safeguarding training
+    * Report any concerns to DSO (via system e.g. CPOMs)
+    * Secure socail media, be mindful about what they say/post
+    * Don't post about school
+    * Be professional
+    * Engage with DSL if unsure about anything
+* If child makes a child protection disclosure:
+    * Acknowledge the info
+    * Be objective
+    * Make notes if you need, tell the child if you do and why
+    * Let the child know what will happen / who will know
+    * Keep nature of concern confidential
+    * Follow up
+    * Don't keep secrets
+    * Don't bombard with questions
+    * Try not to get emotional
+    * Never ask the child to show bruises/marks
+    * Do not contact parents to discuss
+* Safeguarding curriculum
+    * British values, safe spaces, health, safety, wellbeing, balanced views
+* Visitors without DBS
+    * Challenge if not with a staff member
+    * Ensure registration
+    * Badge.lanyard must be worn
+* Consider context
