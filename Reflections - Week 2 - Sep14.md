@@ -87,3 +87,21 @@ Safeguarding - Mindful Equity UK.
     * Ensure registration
     * Badge.lanyard must be worn
 * Consider context
+
+Resilience
+* What is resilience? 
+    * The ability to bounce back and recover, to learn from setbacks, to navigate challenges, to never give up.
+* Everyday resilience examples:
+    * Interruptions in lessons
+    * Large workload
+    * New classes
+    * Learning new subject knowledge
+
+How to: Reflections
+* Rolfe et al.'s reflective model
+    * What?
+    * So what?
+    * Now what?
+
+### Reflections
+* 
