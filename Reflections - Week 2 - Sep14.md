@@ -109,3 +109,7 @@ How to: Reflections
 Thursday 17th
 ---
 ### Reflections
+* I need to put an emphasis on my wellbeing during the year.
+    * Things like making time for friends, participating in a hobby, and spending more time for events with my family where I can.
+* A large number of teachers start out very idealistic.
+    * It is then important to resolve the differences between what you want things to be like within your classroom/school/personal life and what is actually happening around and to you.
