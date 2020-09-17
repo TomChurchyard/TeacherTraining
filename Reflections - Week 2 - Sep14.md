@@ -109,5 +109,3 @@ How to: Reflections
 Thursday 17th
 ---
 ### Reflections
-
-
