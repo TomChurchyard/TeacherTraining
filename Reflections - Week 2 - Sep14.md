@@ -36,9 +36,6 @@ Tuesday 15th
 * How to use library search and reserve a timeslot to browse the library, probably our best source of up to date journals and other research texts for the assignment.
 * Subject Pedagogy Assignment - discussion surrounding it, 2000 word essay + 2000 word equivalent poster. (To be confirmed although is unlikely to change significantly).
 
-### Future Points
-* 
-
 Wednesday 16th
 ---
 ### Notes
@@ -53,7 +50,7 @@ Safeguarding - Mindful Equity UK.
 * Keeping children safe in education.
     * Staff must sign to say they have understood it.
     * DSL/DSO to keep record in addition to staff attendance to safeguarding training.
-* Safeguarding roles (safeguarding officers / leads).
+* Safeguarding roles (safeguarding officers/leads).
     * Should promote an "it could happen here" attitude.
     * Works with:
         * Local authority
@@ -72,9 +69,9 @@ Safeguarding - Mindful Equity UK.
     * Acknowledge the info
     * Be objective
     * Make notes if you need, tell the child if you do and why
-    * Let the child know what will happen / who will know
+    * Let the child know what will happen & who will know
     * Keep nature of concern confidential
-    * Follow up
+    * Follow up reports
     * Don't keep secrets
     * Don't bombard with questions
     * Try not to get emotional
@@ -85,7 +82,7 @@ Safeguarding - Mindful Equity UK.
 * Visitors without DBS
     * Challenge if not with a staff member
     * Ensure registration
-    * Badge.lanyard must be worn
+    * Badge/lanyard must be worn
 * Consider context
 
 Resilience
@@ -104,4 +101,13 @@ How to: Reflections
     * Now what?
 
 ### Reflections
-* 
+* Safeguarding is the responsibility of everyone
+    * Make sure everything is recorded if a situation does need to be reported
+* Rolfe et al.'s reflective model is much more in depth than what I have been doing up to this point.
+    * I will experiment with using this method to record reflections from now on in the hope that my reflections will be more detailed and informative.
+
+Thursday 17th
+---
+### Reflections
+
+
