@@ -109,7 +109,16 @@ How to: Reflections
 Thursday 17th
 ---
 ### Reflections
+* Always remember why you want to become a teacher.
 * I need to put an emphasis on my wellbeing during the year.
     * Things like making time for friends, participating in a hobby, and spending more time for events with my family where I can.
 * A large number of teachers start out very idealistic.
     * It is then important to resolve the differences between what you want things to be like within your classroom/school/personal life and what is actually happening around and to you.
+
+Friday 18th
+---
+### Reflections
+* The Kent selective system is odd for me considering I am someone who went to school outside of the county.
+    * I need to learn more about the content of the Kent/Shepway tests and how the selective system works. I am unsure as to how I feel about the system in general although this could be due to me having not experienced it personally.
+* What education performs and why we educate.
+    * Qualification, socialisation, subjectification. Explore these further along with ideas of what schools are for.
