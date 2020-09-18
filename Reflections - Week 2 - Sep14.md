@@ -122,3 +122,4 @@ Friday 18th
     * I need to learn more about the content of the Kent/Shepway tests and how the selective system works. I am unsure as to how I feel about the system in general although this could be due to me having not experienced it personally.
 * What education performs and why we educate.
     * Qualification, socialisation, subjectification. Explore these further along with ideas of what schools are for.
+    
