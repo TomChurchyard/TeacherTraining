@@ -1,4 +1,4 @@
-Reflections - Week 2 - September 14 - 20
+Reflections - Week 3 - September 21 - 27
 ===
 I will be using Rolfe et al.'s model of reflection when making my reflection notes this week in order to try and bring a bit more structure to my writing.
 
