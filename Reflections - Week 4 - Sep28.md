@@ -1,4 +1,4 @@
-Reflections - Week 2 - September 28 - October 4
+Reflections - Week 4 - September 28 - October 4
 ===
 
 Monday 28th - Thursday 1st
